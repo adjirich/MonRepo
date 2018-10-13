@@ -1,2 +1,0 @@
-alut les genl
-zzd
